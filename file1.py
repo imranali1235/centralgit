@@ -1,1 +1,1 @@
-dil a nada tujy huaa kia h
+akhir is marz ki dawaa kia h
